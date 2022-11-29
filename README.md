@@ -1,0 +1,2 @@
+# mapshots
+MapShots Privacy Policy
